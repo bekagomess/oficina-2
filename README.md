@@ -1,0 +1,1 @@
+Meu nome é Rebecca, sou estudante de Sistemas de Informação na UESB, tenho 18 anos, moro em Jequié Bahia. Tenho 1,64 de altura, tenho o cabelo liso, grande e de uma cor clara. Gosto de jogar futsal, jogo atualmente no time oficial da uesb e pela atletica demolidora. Tenho dois irmãos, um mais velho e uma mais nova. Gosto muito de musica.

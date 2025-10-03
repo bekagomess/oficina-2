@@ -1,0 +1,1 @@
+Aprendi muitas coisas sobre git e github, aprendi varios comandos (que eu nao vou ficar listando aqui pois to com preguiça de escrever tudo, desculpa, mas ta tudo anotadinho). Aprendi a parte teorica tambem, sobre o que é repositorio, versionar, entre outros. E de github aprendi a como conectar os repositorios locais la.
